@@ -1,4 +1,4 @@
-# CallOfCthulhu
+# Call Of Cthulhu %100 Türkçe Yama - Çeviri : Qnoops
 
 Call Of Cthulhu %100 Türkçe Yama - Çeviri : Qnoops
 
